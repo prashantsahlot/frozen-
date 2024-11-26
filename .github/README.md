@@ -1,6 +1,6 @@
 [<img src="https://github.com/prashantsahlot/prashantsahlot/blob/master/resources/hr.gif"/>](https://github.com/prashantsahlot)
 
-<h1> <img src="https://te.legra.ph/file/8e43d1a66ca355ea0b7a5.jpg" height="90px" width="80px"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs Pʀᴀsʜᴀɴᴛ </h1>
+<h1> <img src="https://graph.org/file/480d7657bfb0a847a4a6e-08a08ae21cec905b7b.jpg" height="90px" width="80px"> Hᴇʏ ᴛʜᴇʀᴇ, ᴛʜɪs ɪs Pʀᴀsʜᴀɴᴛ </h1>
 <p align="center">
     <b>ᴠɪsɪᴛᴏʀs</b><br>
     <img align="middle" src="https://profile-counter.glitch.me/prashantsahlot/count.svg" />
