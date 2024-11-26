@@ -9,7 +9,7 @@
 [<img src="https://github.com/prashantsahlot/prashantsahlot/blob/master/resources/hr.gif"/>](https://github.com/prashantsahlot)
 
 <p align="center">
-<img src="https://te.legra.ph/file/9f9f9e906aa1dfdef2e29.jpg">
+<img src="https://files.catbox.moe/qvv8ch.webm">
 </p>
 
 [<img src="https://github.com/prashantsahlot/prashantsahlot/blob/master/resources/hr.gif"/>](https://github.com/prashantsahlot)
